@@ -3,7 +3,7 @@
 
 <p align="center">
   <a href="https://i.postimg.cc/fbMCdPrW/Untitled1057-20250820171622-2.webp">
-    <img src="https://i.postimg.cc/fbMCdPrW/Untitled1057-20250820171622-2.webp" width="350" alt="Image">
+    <img src="https://i.postimg.cc/fbMCdPrW/Untitled1057-20250820171622-2.webp" width="450" alt="Image">
   </a>
 </p>
 
