@@ -18,6 +18,9 @@
 
 <p align="center">
 𝚏𝚊𝚗𝚍𝚘𝚖𝚜 : ⋆.˚ 𝗦𝗚 ❟ 𝗦𝗙𝗛 ❟ 𝗧𝗟𝗢𝗨 ❟ 𝗔𝗢𝗨𝗔𝗗 ❟ 𝗪𝗛𝗖 ˚̣̣̣　｡
+<p align="center">
+<a href="https://prns.cc/mvzqs">˚₊‧꒰ა PRNS . CC ໒꒱ ‧₊˚</a>
+
 
 <p align="center">
 ૮ ․ ․ ྀིა
