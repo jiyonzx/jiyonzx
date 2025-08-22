@@ -16,14 +16,13 @@
 <p align="center">
 ᶻ ᶻ⠀𝐩𝐨𝐥𝐢𝐬𝐡 〃ᵎ 𓈒 < 𝐌 𝟑⠀🌹 ꒦꒷︶ 𓏴 𝐟𝐢𝐜𝐭𝐤𝐢𝐧 ☰ ۠ 𓈒 🔪
 <p align="center">
+𝚏𝚊𝚗𝚍𝚘𝚖𝚜 : ⋆.˚ 𝗦𝗚 ❟ 𝗦𝗙𝗛 ❟ 𝗧𝗟𝗢𝗨 ❟ 𝗔𝗢𝗨𝗔𝗗 ❟ 𝗪𝗛𝗖 ˚̣̣̣　｡
+<p align="center">
 <p align="center">
   <a href="https://i.postimg.cc/ryfxpRCN/wmacpa.gif">
     <img src="https://i.postimg.cc/ryfxpRCN/wmacpa.gif" width="450" alt="Image">
   </a>
 </p>
-
-<p align="center">
-𝚏𝚊𝚗𝚍𝚘𝚖𝚜 : ⋆.˚ 𝗦𝗚 ❟ 𝗦𝗙𝗛 ❟ 𝗧𝗟𝗢𝗨 ❟ 𝗔𝗢𝗨𝗔𝗗 ❟ 𝗪𝗛𝗖 ˚̣̣̣　｡
 <p align="center">
 <a href="https://prns.cc/mvzqs">˚₊‧꒰ა PRNS . CC ໒꒱ ‧₊˚</a>
 
