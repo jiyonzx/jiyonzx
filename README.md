@@ -1,9 +1,11 @@
 <p align="center">
-"𝑫𝒊𝒅 𝑰 𝒏𝒐𝒕 𝒔𝒉𝒐𝒘 𝒚𝒐𝒖 𝒂 𝒘𝒂𝒚 𝒐𝒖𝒕?"
-
+  <a href="https://i.postimg.cc/90Nj4YJ9/image-2024-05-24-133734906.webp">
+    <img src="https://i.postimg.cc/90Nj4YJ9/image-2024-05-24-133734906.webp" width="450" alt="Image">
+  </a>
+</p>
 <p align="center">
-  <a href="https://i.postimg.cc/fbMCdPrW/Untitled1057-20250820171622-2.webp">
-    <img src="https://i.postimg.cc/fbMCdPrW/Untitled1057-20250820171622-2.webp" width="450" alt="Image">
+  <a href="https://i.postimg.cc/XqRP51ST/Untitled1057-20250822154436.webp">
+    <img src="https://i.postimg.cc/XqRP51ST/Untitled1057-20250822154436.webp" width="450" alt="Image">
   </a>
 </p>
 
@@ -14,15 +16,21 @@
 <p align="center">
 ᶻ ᶻ⠀𝐩𝐨𝐥𝐢𝐬𝐡 〃ᵎ 𓈒 < 𝐌 𝟑⠀🌹 ꒦꒷︶ 𓏴 𝐟𝐢𝐜𝐭𝐤𝐢𝐧 ☰ ۠ 𓈒 🔪
 <p align="center">
- ────────────────────────
+<p align="center">
+  <a href="https://i.postimg.cc/ryfxpRCN/wmacpa.gif">
+    <img src="https://i.postimg.cc/ryfxpRCN/wmacpa.gif" width="450" alt="Image">
+  </a>
+</p>
 
 <p align="center">
 𝚏𝚊𝚗𝚍𝚘𝚖𝚜 : ⋆.˚ 𝗦𝗚 ❟ 𝗦𝗙𝗛 ❟ 𝗧𝗟𝗢𝗨 ❟ 𝗔𝗢𝗨𝗔𝗗 ❟ 𝗪𝗛𝗖 ˚̣̣̣　｡
 <p align="center">
 <a href="https://prns.cc/mvzqs">˚₊‧꒰ა PRNS . CC ໒꒱ ‧₊˚</a>
 
-
-<p align="center">
-૮ ․ ․ ྀིა
 <p align="center">
 ѕℓιgнт ιηѕρσ: 𝗠𝗺𝗹𝗲𝗺𝗼𝗻𝗮𝗱𝗲
+<p align="center">
+  <a href="https://i.postimg.cc/fys6Jgck/image-2024-05-24-133746247.webp">
+    <img src="https://i.postimg.cc/fys6Jgck/image-2024-05-24-133746247.webp" width="450" alt="Image">
+  </a>
+</p>
